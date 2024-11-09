@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **Web Devlopment,Machine Learning**
 
-- 📫 How to reach me **nidhimkumar2004@gmail.com%20|**
+- 📫 How to reach me **nidhimkumar2004@gmail.com|**
 
 - ⚡ Fun fact **I think i am smart**
 
